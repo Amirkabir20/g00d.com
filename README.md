@@ -1,1 +1,1 @@
-# g00d.com
+# good.com
